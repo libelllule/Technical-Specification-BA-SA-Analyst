@@ -1,0 +1,1 @@
+file:///C:/Users/user/Downloads/Выдача%20ИТ-оборудования_with_overlays%20(2).svg
